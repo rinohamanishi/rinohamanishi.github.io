@@ -2,6 +2,8 @@
 rinohamanishi@gmail.com
 [linkedin](https://www.linkedin.com/in/rino-hamanishi-76a819230/)
 
+> Lux Sit
+
 ### Experience
 **Library Account Services Student Assistant**
 University of Washington Libraries · Part time
@@ -12,6 +14,8 @@ Seattle, Washington
 - Assist users with library fines, user accounts, borrower's cards, etc. 
 - Handles cashiering and collection of library charges
 **Skills:** Clerical Skills · Microsoft Word · Cashiering · Microsoft Access · Customer Service · Microsoft Excel
+
+![smith hall](https://artsci.washington.edu/sites/default/files/2021-08/GEO-dept-main-rev.jpg)
 
 ### Education
 **University of Washington**
