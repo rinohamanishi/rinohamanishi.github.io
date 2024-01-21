@@ -2,7 +2,6 @@
 rinohamanishi@gmail.com
 [linkedin](https://www.linkedin.com/in/rino-hamanishi-76a819230/)
 
-> Lux Sit
 
 ### Experience
 **Library Account Services Student Assistant**
